@@ -40,3 +40,24 @@
     4. In connection with the study of Buddhism, then, we must be alert to the risk of 'cultureblindness', and the misunderstandings which can arise from the assumption that Western categories and concepts apply to other cultures and civilizations.
 
 ## 1. Is Buddhism a Religion?
+
+1.
+    1. Problems of the kind just mentioned confront us as soon as we try to define what Buddhism is.
+    2. Is it a religion? A philosophy? A way of life? A code of ethics?
+    3. It is not easy to classify Buddhism as any of these things, and it challenges us to rethink some of these categories.
+    4. What, for example, do we mean by 'religion'?
+    5. Most people would say that religion has something to do with belief in God.
+    6. God, in turn, is understood as a Supreme Being who created the world and the creatures in it.
+    7. Furthermore, God takes a close interest (or at least has up to now) in the course of human history, by entering into covenants, making his will known in various ways, and intervening miraculously at critical junctures.
+
+2.
+    1. If belief in God in this sense is the essence of religion, then Buddhism cannot be a religion.
+    2. Buddhism holds no such belief and, on the contrary, denies the existence of a creator god.
+    3. In terms of the available Western categories, this would make Buddhism 'atheistic'.
+    4. One problem with this designation, however, is that Buddhism recognizes the existence of supernatural beings such as gods and spirits.
+    5. Another is that Buddhism seems not to have much in common with other atheistic ideologies such as Marxism.
+    6. Perhaps, then, the categories of 'theistic' and 'atheistic' are not really appropriate here.
+    7. Some have suggested that a new category — that of the 'non-theistic' religion — is needed to encompass Buddhism.
+    8. Another possibility is that our original definition is simply too narrow.
+    9. Could it be that the idea of a creator-God, while a central feature of one religion — or family of religions — is not the defining characteristic of all religions?
+    10. While this notion is certainly central to the 'Abrahamic' or 'Semitic' religions, namely Judaism, Christianity, and Islam, there may be other systems of belief — such as Confucianism and Taoism — which resemble Western religion in many ways but lack this ingredient.
